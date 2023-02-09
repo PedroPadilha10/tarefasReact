@@ -5,7 +5,7 @@
 - Também pode adicionar a dificuldade de cada uma delas
 
 
-🧠 Espero que goste!
+🧠 Espero que goste!!
 
 
 <p align="center">
